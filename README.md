@@ -10,8 +10,8 @@
 
 
 
-　　　　 ​　　　　　　　　　　 ​　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=voxcest&color=A7CED7&style=plastic&label=໒ྀི✙ )
+　　　　 ​　　　　　　　　　　 ​　　　　　　　　　　![](https://komarev.com/ghpvc/?username=voxcest&color=A7CED7&style=plastic&label=໒ྀི✙ )
 
 
 
-　　　　 ​　　　　　　[prns.cc](https://pronouns.cc/@voxcest) - [atabook](https://voxcest.atabook.org/) - [pony town info](https://rentry.co/suicide_parade) - [strawpage (REMADE!! SIGN NOWWW!!!)](https://cloverslove.straw.page/)
+　　　　 ​　　　　　　　　　　　　　　[prns.cc](https://pronouns.cc/@voxcest) - [atabook](https://voxcest.atabook.org/) - [pony town info](https://rentry.co/suicide_parade) - [strawpage](https://cloverslove.straw.page/)
