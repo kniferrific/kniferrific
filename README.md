@@ -1,4 +1,6 @@
-　　　　　　　　　　　　　　　　　　　　　　　　[![Typing SVG](https://readme-typing-svg.demolab.com?font=Quintessential&pause=1000&color=36A72C&width=435&lines=sign+my+atabook!;or+my+strawpage...;i+luv+all+my+friends!)](https://git.io/typing-svg)
+![](https://64.media.tumblr.com/4c6f38eb5a67e493c7f3767b7d6d0646/f03668631de77a31-7c/s2048x3072/2e650cd86c6836d4024fbdace9645fffccd65e35.gifv)
+
+　　　　　　　　　　　　　　　　　　　　　　　　　[![Typing SVG](https://readme-typing-svg.demolab.com?font=Quintessential&pause=1000&color=36A72C&width=435&lines=sign+my+atabook!;or+my+strawpage...;i+luv+all+my+friends!)](https://git.io/typing-svg)
 
 　　　　　　　　　　　　　　　　　ᴅᴏ ɴᴏᴛ ᴄᴏᴘʏ ᴏʀ ᴛᴀᴋᴇ ɪɴsᴘᴏ ғʀᴏᴍ ᴍʏ sᴋɪɴs ᴏʀ ᴘʀᴏғɪʟᴇs ᴀɴʏᴡʜᴇʀᴇ
 
