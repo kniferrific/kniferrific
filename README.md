@@ -20,6 +20,6 @@
 
 　　　　 ​　　　　　　　　　　　　　　　　　　 ​　　#υηѕтαвℓєѕqυα∂♡
      
-　　　　　　　　　　　ᨳ( ̷ཀ˕◟̥̥)ഒ　 [ℳᵢ𝓬ₕᴀₑʟ](https://github.com/OV3RCA5T)　 ꒰ ܸ𐄙 ༝ 𐄙 ܸ𐨯ﾟ⸒⠀　[Ⲙₐrₖ](https://github.com/minibwni)　⠀煉⠀⠀ಣ⠀　[𝓖ₒᵤʀₘᴀₙ𝓭](https://github.com/gutbuckett)　⠀ ֯໒ ͚.ི⠀ʆ ͜͝ᣟ⠀⠀ ꘓ ᩧ
+　　　　　　　　　　　ᨳ( ̷ཀ˕◟̥̥)ഒ　 [ℳᵢ𝓬ₕᴀₑʟ](https://github.com/OV3RCA5T)　 ꒰ ܸ𐄙 ༝ 𐄙 ܸ𐨯ﾟ⸒⠀　[𝓐𝔲♭𝔯𝔢ﻉ](https://github.com/minibwni)　⠀煉⠀⠀ಣ⠀　[𝓖ₒᵤʀₘᴀₙ𝓭](https://github.com/gutbuckett)　⠀ ֯໒ ͚.ི⠀ʆ ͜͝ᣟ⠀⠀ ꘓ ᩧ
      
 ![](https://64.media.tumblr.com/767162d6a24d80037de379a0028f333e/ba9566ad6062a30d-67/s1280x1920/1c4b27f12b1e5975cce0aab2bc3f0a1a3db57bff.pnj)
