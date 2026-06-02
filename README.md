@@ -22,4 +22,4 @@
      
 　　　　　　　　　　　ᨳ( ̷ཀ˕◟̥̥)ഒ　 [ℳᵢ𝓬ₕᴀₑʟ](https://github.com/OV3RCA5T)　 ꒰ ܸ𐄙 ༝ 𐄙 ܸ𐨯ﾟ⸒⠀　[𝓐𝔲♭𝔯𝔢ﻉ](https://github.com/minibwni)　⠀煉⠀⠀ಣ⠀　[𝓖ₒᵤʀₘᴀₙ𝓭](https://github.com/gutbuckett)　⠀ ֯໒ ͚.ི⠀ʆ ͜͝ᣟ⠀⠀ ꘓ ᩧ
      
-![](https://64.media.tumblr.com/767162d6a24d80037de379a0028f333e/ba9566ad6062a30d-67/s1280x1920/1c4b27f12b1e5975cce0aab2bc3f0a1a3db57bff.pnj)
+　　　　　　![](https://64.media.tumblr.com/a16f2386ff20c4db327215bc8ca7447f/837acbd21f9974fe-27/s400x600/8120ccda36f03f2eafcb4b864fafa93e22a30c3d.pnj)![](https://64.media.tumblr.com/78e829022f157e421e424514cb01ff54/837acbd21f9974fe-31/s400x600/82427cf93ea0047d3cafbe0df435cf88b3dccbf7.gifv)
