@@ -7,7 +7,7 @@
            
 　　　　　　　　　　　　❛     ⸺     ᵳₑₑₗ ᵳᵣₑₑ ₜₒ ₐₛₖ ₜₒ ♭ₑ ᵳᵣᵢₑₙ𝓭ₛ! ᵢ ₐₗ𝔀ₐᵧₛ ₐ𝓬𝓬ₑₚₜ ᵳᵣᵢₑₙ𝓭 ᵣₑ𝓺ᵤₑₛₜₛ ᵢᵳ ᵧₒᵤ ₐₛₖ ₘₑ ♭ₑᵳₒᵣₑₕₐₙ𝓭 𓈒
         
-　　　　 ​　　　　　　　　　　 ​　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=voxcest&color=36A72C&style=plastic&label=my 𓏼 tsugukos )
+　　　　 ​　　　　　　　　　　 ​　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=voxcest&color=565FA3&style=plastic&label=FAGS)
 
 　　　　 ​　　　　　　　　　　　　　　　　　　 ​　　︶⊹︶︶⠀୨୧⠀︶︶⊹︶
 
