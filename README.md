@@ -23,3 +23,6 @@
 　　　　　　　　　　　ᨳ( ̷ཀ˕◟̥̥)ഒ　 [ℳᵢ𝓬ₕᴀₑʟ](https://github.com/OV3RCA5T)　 ꒰ ܸ𐄙 ༝ 𐄙 ܸ𐨯ﾟ⸒⠀　[𝓐𝔲♭𝔯𝔢ﻉ](https://github.com/minibwni)　⠀煉⠀⠀ಣ⠀　[𝓖ₒᵤʀₘᴀₙ𝓭](https://github.com/gutbuckett)　⠀ ֯໒ ͚.ི⠀ʆ ͜͝ᣟ⠀⠀ ꘓ ᩧ
      
 　　　　　　![](https://64.media.tumblr.com/a16f2386ff20c4db327215bc8ca7447f/837acbd21f9974fe-27/s400x600/8120ccda36f03f2eafcb4b864fafa93e22a30c3d.pnj)![](https://64.media.tumblr.com/78e829022f157e421e424514cb01ff54/837acbd21f9974fe-31/s400x600/82427cf93ea0047d3cafbe0df435cf88b3dccbf7.gifv)
+      
+　　　　　　　　　　　　![](https://64.media.tumblr.com/541c53e74e4c393d84c7c6ca1267e17f/837acbd21f9974fe-af/s250x400/7f6ef091140782021964b7abc1627d36cbd403be.gifv)![](https://64.media.tumblr.com/9de49769bb8398bfa641cfefd309a6b0/837acbd21f9974fe-03/s250x400/0d9f42fcb49f9c83d48c6ab55e07383af7622d8e.gifv)![](https://64.media.tumblr.com/ebfd2e2b09a9936be607c8fdd2f56ab2/837acbd21f9974fe-83/s250x400/b7aaaa92980f8b2b5c842b28207f0b5c6e50539e.gifv)
+
