@@ -16,7 +16,9 @@
 　　　　 ​　　　　　　　　　　　　　　　　　　 ​　　◞    ꜝꜞ [ₚₜ ᵢₙᵳₒ](https://rentry.co/suicide_parade) ˳  𓏲  ˑ [ₛₜᵣₐ𝔀ₚₐ𝑔ₑ](https://cloverslove.straw.page/)
 
 　　　　 ​　　　　　　　　　　　　　　　　　　 ​　　︶⊹︶︶⠀୨୧⠀︶︶⊹︶
-![](https://64.media.tumblr.com/d8563d7b89e53ab92b671033dc8386eb/f03668631de77a31-9a/s2048x3072/aeef2f8f36f2c8a8f8e7963cf759ada3a2d456a0.pnj)
+　　　　 ​　　　　　　　　　　　　　　　　　　 ​　　　　　 ​　　　　　　　　　　　　　　　　　　 ​　　　　　　 ​　　　　　　　　　　　　　　　　　　　　 ​![](https://64.media.tumblr.com/a272856de9237b16b34c9d7a315b65df/837acbd21f9974fe-cd/s100x200/8953a4e6ba0dc7de09fef8faee6e18460cef1435.gifv)
+     
+　　　　　　　　　　　　　　　![](https://64.media.tumblr.com/81a9672cc8ebe9d7b5558a72b33647f6/637fe1ba7a81db3d-dd/s500x750/3400e0cba3d08d91df392d442664cf2cd38d7623.gifv)
 
 　　　　 ​　　　　　　　　　　　　　　　　　　 ​　　#υηѕтαвℓєѕqυα∂♡
      
