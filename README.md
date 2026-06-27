@@ -13,9 +13,9 @@
 
 　　　　 ​　　　　　　　　　　　　　　　　　　 ​　　︶⊹︶︶⠀୨୧⠀︶︶⊹︶
 
-　　　　 ​　　　　　　　　　　　　　　　　　　 ​　　 ۫　   𐑺   [ₚᵣₙₛ.𝓬𝓬](https://pronouns.cc/@shinazugawa) ˑ   ⌕ [ₐₜₐ♭ₒₒₖ](https://craigtucker.atabook.org/) ࣭   ᘐ 
+　　　　 ​　　　　　　　　　　　　　　　　　　 ۫　   𐑺   [ᴘʀɴs.ᴄᴄ](https://pronouns.cc/@shinazugawa) ˑ   ⌕ [𝘢𝘵𝘢𝘣𝘰𝘰𝘬](https://craigtucker.atabook.org/) ࣭   ᘐ 
 
-　　　　 ​　　　　　　　　　　　　　　　　　　 ​　　◞    ꜝꜞ [ₚₜ ᵢₙᵳₒ](https://rentry.co/suicide_parade) ˳  𓏲  ˑ [ₛₜᵣₐ𝔀ₚₐ𝑔ₑ](https://cloverslove.straw.page/)
+　　　　 ​　　　　　　　　　　　　　　　　　　◞    ꜝꜞ [𝘱𝘵 𝘪𝘯𝘧𝘰](https://rentry.co/suicide_parade) ˳  𓏲  ˑ [sᴛʀᴀᴡᴘᴀɢᴇ](https://cloverslove.straw.page/)
 
 　　　　 ​　　　　　　　　　　　　　　　　　　 ​　　︶⊹︶︶⠀୨୧⠀︶︶⊹︶
 
