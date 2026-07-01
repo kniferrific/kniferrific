@@ -2,7 +2,7 @@
 
 　　　　　　　　　　　　　　　　　　　　　　　　　[![Typing SVG](https://readme-typing-svg.demolab.com?font=Quintessential&pause=1000&color=53649E&width=435&lines=sign+my+atabook!;or+my+strawpage...;i+luv+all+my+friends!)](https://git.io/typing-svg)
 
-　　　　　　　　　　　　　　　　　 ꒰꒰　 　ᴊ[ᴀᴄ](https://pronouns.cc/@shinazugawa/2names)ᴋ　 ᴏʀ　 ᴄʀ[ᴀɪɢ](https://pronouns.cc/@shinazugawa/2names)　𝜗ৎ　 ᴇɴᴛᴊ 𝟹ᴡ𝟺 sᴘ/sx𝟺𝟾𝟻　 ⸝⸝ ₊ ⊹
+　　　　　　　　　　　　　　　　　 ꒰꒰　 　ᴊ[ᴀᴄ](https://pronouns.cc/@shinazugawa/2names)ᴋ　 ᴏʀ　 ᴄʀ[ᴀɪɢ](https://pronouns.cc/@shinazugawa/2names)　𝜗ৎ　 ᴇɴᴛᴊ 𝟺ᴡ𝟹 sᴘ/sx𝟺𝟾𝟻　 ⸝⸝ ₊ ⊹
 
 　　　　　　　　　　　　　　　　　ᴅᴏ ɴᴏᴛ ᴄᴏᴘʏ ᴏʀ ᴛᴀᴋᴇ ɪɴsᴘᴏ ғʀᴏᴍ ᴍʏ sᴋɪɴs ᴏʀ ᴘʀᴏғɪʟᴇs ᴀɴʏᴡʜᴇʀᴇ
 
