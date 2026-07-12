@@ -2,7 +2,7 @@
 
 　　　　　　　　　　　　　　　　　　　　　　　　　[![Typing SVG](https://readme-typing-svg.demolab.com?font=Quintessential&pause=1000&color=53649E&width=435&lines=sign+my+atabook!;or+my+strawpage...;i+luv+all+my+friends!)](https://git.io/typing-svg)
 
-　　　　　　　　　　　　　　　　　 ꒰꒰　 　ᴊ[ᴀᴄ](https://pronouns.cc/@shinazugawa/2names)ᴋ　 ᴏʀ　 ᴄʀ[ᴀɪɢ](https://pronouns.cc/@shinazugawa/2names)　𝜗ৎ　 ᴇɴᴛᴊ 𝟺ᴡ𝟹 sᴘ/sx 𝟺𝟾𝟻　 ⸝⸝ ₊ ⊹
+　　　　　　　　　　　　꒰꒰　 　ʀᴇʙᴇᴄᴄᴀ　 ᴏʀ　 ᴇsᴛᴇʟʟᴀ　𝜗ৎ　 ᴇɴᴛᴊ 𝟺ᴡ𝟹 sᴘ/sx 𝟺𝟾𝟻 [𝙼]𝚘𝚃𝚆𝚟𝚡𝚐 𝙻𝚂𝙴 𝚂𝙲𝙾𝙴𝙽　 ⸝⸝ ₊ ⊹
 
 　　　　　　　　　　　　　　　　　ᴅᴏ ɴᴏᴛ ᴄᴏᴘʏ ᴏʀ ᴛᴀᴋᴇ ɪɴsᴘᴏ ғʀᴏᴍ ᴍʏ sᴋɪɴs ᴏʀ ᴘʀᴏғɪʟᴇs ᴀɴʏᴡʜᴇʀᴇ
 
