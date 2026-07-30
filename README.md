@@ -8,7 +8,9 @@
 
 　　　　　♡¹།　　 [@pt-walk-of-fame](https://github.com/pt-walk-of-fame), [@pt-of-awesomeness](https://github.com/pt-of-awesomeness), [@pt-hall-of-media](https://github.com/pt-hall-of-media) ʏᴇs ɪᴍ ᴘᴏɴʏ ᴛᴏᴡɴ's ᴄʀᴀɪɢ ᴛᴜᴄᴋᴇʀ ^__^ 〃・꒱
 
-　　　　　　　　　　　　　　𓏵 　. 　 ͜ ͜𓏼˚̣̣̣　   [@pt-fashion](https://github.com/pt-fashion) yes i tint my ponies very prettily yes !!! 　  ◞ ྀི ִ  ⑅   ̣̣̣　˙
+　　　　　　　　　　　　　　𓏵 　. 　 ͜ ͜𓏼˚̣̣̣　   [@pt-fashion](https://github.com/pt-fashion) ʏᴇs ɪ ᴛɪɴᴛ ᴍʏ ᴘᴏɴɪᴇs ᴠᴇʀʏ ᴘʀᴇᴛᴛɪʟʏ ʏᴇs !!! 　  ◞ ྀི ִ  ⑅   ̣̣̣　˙
+
+　　　　　　　　　　　　　　　　　　✿𓏼    [@fans-town](https://github.com/fans-town)  ᩧ𓈒ֺּׅ　ʏᴇs ɪᴍ ᴊᴀᴄᴋsᴏɴ sᴛᴏʀᴍ's ʙɪɢɢᴇsᴛ ғᴀɴ !!!ㅤ♡ྀི ₊
 
            
 　　　　　　❛     ⸺     𝘧𝘦𝘦𝘭 𝘧𝘳𝘦𝘦 𝘵𝘰 𝘢𝘴𝘬 𝘵𝘰 𝘣𝘦 𝘧𝘳𝘪𝘦𝘯𝘥𝘴! 𝘪 𝘢𝘭𝘸𝘢𝘺𝘴 𝘢𝘤𝘤𝘦𝘱𝘵 𝘧𝘳𝘪𝘦𝘯𝘥 𝘳𝘦𝘲𝘶𝘦𝘴𝘵𝘴 𝘪𝘧 𝘺𝘰𝘶 𝘢𝘴𝘬 𝘮𝘦 𝘣𝘦𝘧𝘰𝘳𝘦𝘩𝘢𝘯𝘥  𓈒
