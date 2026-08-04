@@ -6,7 +6,7 @@
 
 　　　　　　　　　　　　　　　　　ᴅᴏ ɴᴏᴛ ᴄᴏᴘʏ ᴏʀ ᴛᴀᴋᴇ ɪɴsᴘᴏ ғʀᴏᴍ ᴍʏ sᴋɪɴs ᴏʀ ᴘʀᴏғɪʟᴇs ᴀɴʏᴡʜᴇʀᴇ
 
-　　　　♡¹།　　 [@pt-walk-of-fame](https://github.com/pt-walk-of-fame), [@pt-of-awesomeness](https://github.com/pt-of-awesomeness), [@pt-hall-of-media](https://github.com/pt-hall-of-media), [@ponytown-nominations](https://github.com/ponytown-nominations), [@ponychievements](https://github.com/ponychievements) 𓈒𓈒࣪  ֯❀𓏼
+　　♡¹།　　 [@pt-walk-of-fame](https://github.com/pt-walk-of-fame), [@pt-of-awesomeness](https://github.com/pt-of-awesomeness), [@pt-hall-of-media](https://github.com/pt-hall-of-media), [@ponytown-nominations](https://github.com/ponytown-nominations), [@ponychievements](https://github.com/ponychievements), [@title-town](https://github.com/title-town) 𓈒𓈒࣪  ֯❀𓏼
 
 
 　　　　　　　　　　　　　　　　　　　　𓈒⠀⠀𓏵    ʏᴇs ɪᴍ ᴘᴏɴʏ ᴛᴏᴡɴ's ᴄʀᴀɪɢ ᴛᴜᴄᴋᴇʀ ^__^ 〃・꒱
