@@ -9,7 +9,7 @@
 ♡¹།　　 [@pt-walk-of-fame](https://github.com/pt-walk-of-fame), [@pt-of-awesomeness](https://github.com/pt-of-awesomeness), [@pt-hall-of-media](https://github.com/pt-hall-of-media), [@ponytown-nominations](https://github.com/ponytown-nominations), [@ponychievements](https://github.com/ponychievements), [@title-town](https://github.com/title-town) + 𓈒𓈒࣪  ֯❀𓏼
 
 
-　　　　　　　　　　　　　　　　𓈒⠀⠀𓏵    [@pt-nominations](https://github.com/pt-nominations) ʏᴇs ɪᴍ ᴘᴏɴʏ ᴛᴏᴡɴ's ᴄʀᴀɪɢ ᴛᴜᴄᴋᴇʀ ^__^ 〃・꒱
+　　　　　　　　　　　𓈒⠀⠀𓏵    [@pt-nominations](https://github.com/pt-nominations), [@pt-contributers](https://github.com/pt-contributers), [@pt-medals](https://github.com/pt-medals) ʏᴇs ɪᴍ ᴘᴏɴʏ ᴛᴏᴡɴ's ᴄʀᴀɪɢ ᴛᴜᴄᴋᴇʀ ^__^ 〃・꒱
 
 　　　　　　　　　　　　　　𓏵 　. 　 ͜ ͜𓏼˚̣̣̣　   [@pt-fashion](https://github.com/pt-fashion) ʏᴇs ɪ ᴛɪɴᴛ ᴍʏ ᴘᴏɴɪᴇs ᴠᴇʀʏ ᴘʀᴇᴛᴛɪʟʏ ʏᴇs !!! 　  ◞ ྀི ִ  ⑅   ̣̣̣　˙
 
