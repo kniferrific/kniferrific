@@ -1,6 +1,3 @@
-　　　　　　　　　　　　　　　　![](https://64.media.tumblr.com/fc922fd36071e02020d20f6c344e66a9/4cd8dd7e625425ed-a5/s500x750/3ced659cc00038cef7939efa407e30823a8e3964.jpg)
-
-　　　　　　　　　　　　　　　　　　　　　　　　　[![Typing SVG](https://readme-typing-svg.demolab.com?font=Quintessential&pause=1000&color=53649E&width=435&lines=sign+my+atabook!;or+my+strawpage...;i+luv+all+my+friends!)](https://git.io/typing-svg)
 
 　　　　　　　　　　　　꒰꒰　 　ʀᴇʙᴇᴄᴄᴀ　 ᴏʀ　 ᴇsᴛᴇʟʟᴀ　𝜗ৎ　 ᴇɴᴛᴊ 𝟺ᴡ𝟹 sᴘ𝟺𝟾𝟻 [𝙼]𝚘𝚃𝚆𝚟𝚡𝚜 𝙻𝚂𝙴 𝚂𝚌𝙾|𝙴|𝚗　 ⸝⸝ ₊ ⊹
 
