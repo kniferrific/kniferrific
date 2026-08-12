@@ -1,34 +1,14 @@
-gonna be remaking ts ok #tuff
-
-　　　　　　　　　　　　꒰꒰　 　ʀᴇʙᴇᴄᴄᴀ　 ᴏʀ　 ᴇsᴛᴇʟʟᴀ　𝜗ৎ　 ᴇɴᴛᴊ 𝟺ᴡ𝟹 sᴘ𝟺𝟾𝟻 [𝙼]𝚘𝚃𝚆𝚟𝚡𝚜 𝙻𝚂𝙴 𝚂𝚌𝙾|𝙴|𝚗　 ⸝⸝ ₊ ⊹
-
-　　　　　　　　　　　　　　　　　ᴅᴏ ɴᴏᴛ ᴄᴏᴘʏ ᴏʀ ᴛᴀᴋᴇ ɪɴsᴘᴏ ғʀᴏᴍ ᴍʏ sᴋɪɴs ᴏʀ ᴘʀᴏғɪʟᴇs ᴀɴʏᴡʜᴇʀᴇ
-
-♡¹།　[@pt-walk-of-fame](https://github.com/pt-walk-of-fame), [@pt-of-awesomeness](https://github.com/pt-of-awesomeness), [@pt-hall-of-media](https://github.com/pt-hall-of-media), [@ponytown-nominations](https://github.com/ponytown-nominations), [@ponychievements](https://github.com/ponychievements), [@title-town](https://github.com/title-town) + 𓈒𓈒࣪  ֯❀𓏼
+![](https://64.media.tumblr.com/759402a84127443ed74c39f1f92ec77f/fbfeba6138e62297-36/s1280x1920/72c17070eb1ec3dd87643de25d27a8a17dfd1502.pnj)
+![](https://64.media.tumblr.com/1d4b10a46bca741e6b40c8312db2bd13/fbfeba6138e62297-68/s2048x3072/585a82c58b14f12fc1c61ce80cece5010bd1079e.pnj)
 
 
-　　　　　　　　　　　𓈒⠀⠀𓏵    [@pt-nominations](https://github.com/pt-nominations), [@pt-contributers](https://github.com/pt-contributers), [@pt-medals](https://github.com/pt-medals) ʏᴇs ɪᴍ ᴘᴏɴʏ ᴛᴏᴡɴ's ᴄʀᴀɪɢ ᴛᴜᴄᴋᴇʀ ^__^ 〃・꒱
-
-　　　　　　　　　　　　　　𓏵 　. 　 ͜ ͜𓏼˚̣̣̣　   [@pt-fashion](https://github.com/pt-fashion) ʏᴇs ɪ ᴛɪɴᴛ ᴍʏ ᴘᴏɴɪᴇs ᴠᴇʀʏ ᴘʀᴇᴛᴛɪʟʏ ʏᴇs !!! 　  ◞ ྀི ִ  ⑅   ̣̣̣　˙
-
-　　　　　　　　　　　　　　　　　　✿𓏼    [@fans-town](https://github.com/fans-town)  ᩧ𓈒ֺּׅ　ʏᴇs ɪᴍ ᴊᴀᴄᴋsᴏɴ sᴛᴏʀᴍ's ʙɪɢɢᴇsᴛ ғᴀɴ !!!ㅤ♡ྀི ₊
-
-           
-　　　　　　❛     ⸺     𝘧𝘦𝘦𝘭 𝘧𝘳𝘦𝘦 𝘵𝘰 𝘢𝘴𝘬 𝘵𝘰 𝘣𝘦 𝘧𝘳𝘪𝘦𝘯𝘥𝘴! 𝘪 𝘢𝘭𝘸𝘢𝘺𝘴 𝘢𝘤𝘤𝘦𝘱𝘵 𝘧𝘳𝘪𝘦𝘯𝘥 𝘳𝘦𝘲𝘶𝘦𝘴𝘵𝘴 𝘪𝘧 𝘺𝘰𝘶 𝘢𝘴𝘬 𝘮𝘦 𝘣𝘦𝘧𝘰𝘳𝘦𝘩𝘢𝘯𝘥  𓈒
-        
-　　　　 ​　　　　　　　　　　 ​　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=voxcest&color=565FA3&style=plastic&label=.✿𓏼 )
-
-　　　　 ​　　　　　　　　　　　　　　　　　　 ​　　︶⊹︶︶⠀୨୧⠀︶︶⊹︶
-
-　　　　 ​　　　　　　　　　　　　　　　　　　 ۫　   𐑺   [ᴘʀɴs.ᴄᴄ](https://pronouns.cc/@shinazugawa) ˑ   ⌕ [𝘢𝘵𝘢𝘣𝘰𝘰𝘬](https://craigtucker.atabook.org/) ࣭   ᘐ 
-
-　　　　 ​　　　　　　　　　　　　　　　　　　◞    ꜝꜞ [𝘱𝘵 𝘪𝘯𝘧𝘰](https://rentry.co/suicide_parade) ˳  𓏲  ˑ [sᴛʀᴀᴡᴘᴀɢᴇ](https://cloverslove.straw.page/)
-
-　　　　 ​　　　　　　　　　　　　　　　　　　 ​　　︶⊹︶︶⠀୨୧⠀︶︶⊹︶
+　　　　　　　　　꒰◟ ̣̣̥͜♫ ྀིྀིྀིྀིྀི ˚̣̣̣ ♪🄴[𝚜𝕥ɛᥣ](https://pronouns.cc/@shinazugawa/2names)ᒪᥲ ₒᵤ 𝕸[ᥲ𝕕ᥱ⑅](https://pronouns.cc/@shinazugawa/2names)🄻ᥱ[і](https://pronouns.cc/@shinazugawa/2names)ᥒ𝕖| ͜͝ |𓏪̣̣𓐇݁𓈒ֺּໃ ִ⑅𓐇ྐ ͜͝♪݃͡𓏺͚ ྀི༷ᩚഒ 🅔𝓝𝐓𝙹 𝟰ᥕ𝟯 𝓼⍴𝟰𝟴𝟱 [𝕸]ѻ𝐓ฝ𝗏𝗑𝗌 𝕃Ⓢ𝐄 𝐒𝖼𝗼|𝐄|𐓣𓈒 ຼ ͜𓐇˚ִִ𓈒꒱꒱
 
 
-　　　　 ​　　　　　　　　　　　　　　　　　　 ​![](https://64.media.tumblr.com/a272856de9237b16b34c9d7a315b65df/837acbd21f9974fe-cd/s100x200/8953a4e6ba0dc7de09fef8faee6e18460cef1435.gifv)![](https://64.media.tumblr.com/0ad9ca13440a6116d2c6ea8ba5956ed6/f07ed8f1e654f5b1-41/s100x200/c93de7e494141364763f072799bc67f42dcf79f9.pnj)
-     
-　　　　　　　　　　　　　　　![](https://64.media.tumblr.com/81a9672cc8ebe9d7b5558a72b33647f6/637fe1ba7a81db3d-dd/s500x750/3400e0cba3d08d91df392d442664cf2cd38d7623.gifv)
+　　　　　　　　　　　　　　　　　　　　　[atabook](https://craigtucker.atabook.org/) , [strawpage](https://cloverslove.straw.page/) , [pt info](https://rentry.co/suicide_parade) , [extended](https://rentry.co/tropfan)
 
-　　　　　　　　　　　　　　　　　　　　　　 ​　　![](https://64.media.tumblr.com/e9be8fd52dd9f236a5d45a9ff9a5348f/aed386ae71111543-a1/s400x600/64b87f46fa90529d135ef63ef38d6ad7dd8feb7b.gifv)
+
+　　　　　　　　　　　　　　 ͜͝ ̣̣̥| ̥̈◟ ͜𓏼˚[⒈](https://github.com/pt-walk-of-fame) 　[⒉](https://github.com/pt-of-awesomeness) 　[⒊](https://github.com/pt-hall-of-media) 　[⒋](https://github.com/ponytown-nominations)　 [⒌](https://github.com/ponychievements) 　[⒍](https://github.com/title-town)　 [⒎](https://github.com/pt-nominations)　 [⒏](https://github.com/pt-contributers)　 [⒐](https://github.com/pt-medals)　 [⒑](https://github.com/pt-fashion)　 [⒒](https://github.com/fans-town)໒ྀ𝄁​̻̻𓋭​͜ ꒳𓈒ֺֺֺֺּּּׅׅ  ﾟ ֮֮𓏻
+
+
+![](https://64.media.tumblr.com/9e47c8fac4e2c1dab0ec2853eb33a755/fbfeba6138e62297-56/s1280x1920/e4476c5bd3b10621bc3161a25f1c8dbce4aaa396.pnj)
