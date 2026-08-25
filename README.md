@@ -2,7 +2,10 @@
 ![](https://64.media.tumblr.com/1d4b10a46bca741e6b40c8312db2bd13/fbfeba6138e62297-68/s2048x3072/585a82c58b14f12fc1c61ce80cece5010bd1079e.pnj)
 
 
-　　　　　　　　　꒰◟ ̣̣̥͜♫ ྀིྀིྀིྀིྀི ˚̣̣̣ ♪ 𝕤𓈒̫࣪[ყ̫࣪ℓ۫۫۫𓈒ּ֯](https://pronouns.cc/@shinazugawa/2names)νֺֺֺּּׅׅⓘє ₒᵤ 𝕸[ᥲ𝕕ᥱ⑅](https://pronouns.cc/@shinazugawa/2names)🄻ᥱ[і](https://pronouns.cc/@shinazugawa/2names)ᥒ𝕖| ͜͝ |𓏪̣̣𓐇݁𓈒ֺּໃ ִ⑅𓐇ྐ ͜͝♪݃͡𓏺͚ ྀི༷ᩚഒ 🅔𝓝𝐓𝙹 ①𝔀𝟡 ֆӼ/𝓼⍴ 𝟷𝟒𝟱 [𝕸]ѻ𝐓ฝ𝗏𝗑𝗌 𝕃Ⓢ𝐄 𝐒𝖼𝗼|𝐄|𐓣𓈒 ຼ ͜𓐇˚ִִ𓈒꒱꒱
+　　　　　　　　　　　　　　　　　　　　　　　꒰◟ ̣̣̥͜♫ ྀིྀིྀིྀིྀི ˚̣̣̣ ♪ 𝕤𓈒̫࣪[ყ̫࣪ℓ۫۫۫𓈒ּ֯](https://pronouns.cc/@shinazugawa/2names)νֺֺֺּּׅׅⓘє ₒᵤ 𝕸[ᥲ𝕕ᥱ⑅](https://pronouns.cc/@shinazugawa/2names)🄻ᥱ[і](https://pronouns.cc/@shinazugawa/2names)ᥒ𝕖| ͜͝ |𓏪̣̣𓐇݁𓈒ֺּໃ
+         
+    
+ 　　　　　　　　　 　　　　　　　　　⑅𓐇ྐ ͜͝♪ ྀི༷ᩚഒ 🅔𝓝𝐓𝙹 ①𝔀𝟡 ֆӼ/𝓼⍴ 𝟷𝟒𝟱 [𝕸]ѻ𝐓ฝ𝗏𝗑𝗌 𝕃Ⓢ𝐄 𝐒𝖼𝗼|𝐄|𐓣𓈒 ຼ ͜𓐇˚ִִ𓈒꒱꒱
 
 
 　　　　　　　　　　　　　　　　　　　　　[atabook](https://ivandrew.atabook.org/) , [strawpage](https://cloverslove.straw.page/) , [pt info](https://rentry.co/suicide_parade) , [extended](https://rentry.co/tropfan)
