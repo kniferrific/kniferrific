@@ -8,11 +8,15 @@
 ![](https://64.media.tumblr.com/1d4b10a46bca741e6b40c8312db2bd13/fbfeba6138e62297-68/s2048x3072/585a82c58b14f12fc1c61ce80cece5010bd1079e.pnj)
 
 
-　　　　　　　　　　　　　　　　　　　　　　　꒰◟ ̣̣̥͜♫ ྀིྀིྀིྀིྀི ˚̣̣̣ ♪ 𝕤𓈒̫࣪ყ̫࣪ℓ۫۫۫𓈒ּ֯νֺֺֺּּׅׅⓘє ₒᵤ 𝕸ᥲ𝕕ᥱ🄻ᥱіᥒ𝕖| ͜͝ |𓏪̣̣𓐇݁𓈒ֺּໃ
-         
-    
- 　　　　　　　　　 　　　　　　　　　⑅𓐇ྐ ͜͝♪ ྀི༷ᩚഒ 🅔𝓝𝐓𝙹 ①𝔀𝟡 ֆӼ/𝓼⍴ 𝟷𝟒𝟱 [𝕸]ѻ𝐓ฝ𝗏𝗑𝗌 𝕃Ⓢ𝐄 𝐒𝖼𝗼|𝐄|𐓣𓈒 ຼ ͜𓐇˚ִִ𓈒꒱꒱
+<div align="center">
 
+<span style="color:#C50077;">꒰◟ ̣̣̥͜♫ ྀིྀིྀིྀིྀི ˚̣̣̣ ♪ 𝕤𓈒̫࣪ყ̫࣪ℓ۫۫۫𓈒ּ֯νֺֺֺּּׅׅⓘє ₒᵤ 𝕸ᥲ𝕕ᥱ🄻ᥱіᥒ𝕖| ͜͝ |𓏪̣̣𓐇݁𓈒ֺּໃ</span>
+
+<br><br>
+
+<span style="color:#A68DFF;">⑅𓐇ྐ ͜͝♪ ྀི༷ᩚഒ 🅔𝓝𝐓𝙹 ①𝔀𝟡 ֆӼ/𝓼⍴ 𝟷𝟒𝟱 [𝕸]ѻ𝐓ฝ𝗏𝗑𝗌 𝕃Ⓢ𝐄 𝐒𝖼𝗼|𝐄|𐓣𓈒 ຼ ͜𓐇˚ִִ𓈒꒱꒱</span>
+
+</div>
 
 　　　　　　　　[![](https://64.media.tumblr.com/5895a6970b9abb5ecb99ca64ece25ee1/473401731bebdd08-ae/s250x400/7d4072f3c0256112850185c70934a964b7954733.pnj)](https://ivandrew.atabook.org/) [![](https://64.media.tumblr.com/f0a2a9ab4680c7e2eebe20432da416f5/473401731bebdd08-e9/s250x400/ea0b56d008c20e1edeeb7b494d3163a042aa2cfa.pnj)](https://rentry.co/suicide_parade) [![](https://64.media.tumblr.com/44653bf9d161735bf8296401e3f9058e/473401731bebdd08-da/s250x400/a3acc87a21149b0c2c52d30b1b2ebc37d3258092.pnj)](https://rentry.co/tropfan) [![](https://64.media.tumblr.com/f6b05af64e97a4fd6cc134b5b4be7af9/473401731bebdd08-0b/s250x400/0e863ef323a9deef2076ebb2a620d5aecbc48589.pnj)](https://cloverslove.straw.page/)
 
