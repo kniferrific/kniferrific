@@ -27,6 +27,10 @@ ${\textsf{\color{#C50077} ⑅𓐇ྐ ͜͝♪ ྀི༷ᩚഒ 🅔𝓝𝐓𝙹 �
 
 <br>
 
+LARPDUO [@drfunkbeat](https://github.com/drfunkbeat) !!! 
+
+<a href="https://github.com/pt-friendships">pt-friendships</a>
+
 andrew + sx1 of pt !!! 
 
 <a href="https://github.com/style-town">style-town</a>, <a href="https://github.com/character-town">character-town</a>
