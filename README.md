@@ -21,13 +21,13 @@ ${\textsf{\color{#C50077} ⑅𓐇ྐ ͜͝♪ ྀི༷ᩚഒ 🅔𝓝𝐓𝙹 �
 <div align="center">
 
 <details>
-<summary><i><b>mi c00l titl3s !!!</b></i></summary>
+<summary><i><b>mai c00l titlez !!!</b></i></summary>
 
 <div align="center">
 
 <br>
 
-LARPDUO [@drfunkbeat](https://github.com/drfunkbeat) !!! 
+LARPDUO [@drfunkbeat](https://github.com/drfunkbeat) !!!
 
 <a href="https://github.com/pt-friendships">pt-friendships</a>, <a href="https://github.com/pt-ship-nominations">pt-ship-nominations</a>
 
@@ -52,7 +52,7 @@ number 1 fan of doublezipper + jackson storm !!!
 
 <br>
 
-thank u 4 all da n0minations, yaya!!!
+thank u 4 all da n0minationz, yaya!!!
 
 </div>
 
