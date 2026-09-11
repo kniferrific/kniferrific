@@ -29,7 +29,7 @@ ${\textsf{\color{#C50077} ⑅𓐇ྐ ͜͝♪ ྀི༷ᩚഒ 🅔𝓝𝐓𝙹 �
 
 LARPDUO [@drfunkbeat](https://github.com/drfunkbeat) !!! 
 
-<a href="https://github.com/pt-friendships">pt-friendships</a>
+<a href="https://github.com/pt-friendships">pt-friendships</a>, <a href="https://github.com/pt-ship-nominations">pt-ship-nominations</a>
 
 andrew + sx1 of pt !!! 
 
