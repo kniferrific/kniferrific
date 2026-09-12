@@ -27,25 +27,25 @@ ${\textsf{\color{#C50077} ⑅𓐇ྐ ͜͝♪ ྀི༷ᩚഒ 🅔𝓝𝐓𝙹 �
 
 LARPDUO [@drfunkbeat](https://github.com/drfunkbeat) !!!
 
-<a href="https://github.com/pt-friendships">pt-friendships</a>, <a href="https://github.com/pt-ship-nominations">pt-ship-nominations</a>
+<a href="https://github.com/pt-friendships">pt-friendzhipz</a>, <a href="https://github.com/pt-ship-nominations">pt-zhip-nominationz</a>
 
-andrew + sx1 + mrdoombringer of pt !!! 
+andrew + zexual 1 + mrdoombringer of pt !!! 
 
-<a href="https://github.com/style-town">style-town</a>, <a href="https://github.com/character-town">character-town</a>, <a href="https://github.com/forsakentown">forsakentown</a>
+<a href="https://github.com/style-town">ztyle-town</a>, <a href="https://github.com/character-town">character-town</a>, <a href="https://github.com/forsakentown">forzakentown</a>
 
 ItzskeetXD662 of pt!!
 
-<a href="https://github.com/pt-heavyfictkin">pt-heavyfictkin</a>, <a href="https://github.com/Ponytowns-rewards">ponytowns-rewards</a>
+<a href="https://github.com/pt-heavyfictkin">pt-heavyfictkin</a>, <a href="https://github.com/Ponytowns-rewards">ponytownz-rewardz</a>
 
 craig tucker of pt !
 
-<a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a>, <a href="https://github.com/pt-contributers">pt-contributers</a>, <a href="https://github.com/pt-of-awesomeness">pt-of-awesomeness</a>, <a href="https://github.com/pt-nominations">pt-nominations</a>, <a href="https://github.com/pt-hall-of-media">pt-hall-of-media</a>, <a href="https://github.com/ponytown-nominations">ponytown-nominations</a>, <a href="https://github.com/title-town">title-town</a>, <a href="https://github.com/ponychievements">ponychievements</a>, <a href="https://github.com/pt-medals">pt-medals</a>, <a href="https://github.com/pt-fashion">pt-fashion</a>, <a href="https://github.com/cosplaytown">cosplaytown</a>
+<a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a>, <a href="https://github.com/pt-contributers">pt-contributerz</a>, <a href="https://github.com/pt-of-awesomeness">pt-of-awezomenezz</a>, <a href="https://github.com/pt-nominations">pt-nominationz</a>, <a href="https://github.com/pt-hall-of-media">pt-hall-of-media</a>, <a href="https://github.com/ponytown-nominations">ponytown-nominationz</a>, <a href="https://github.com/title-town">title-town</a>, <a href="https://github.com/ponychievements">ponychievementz</a>, <a href="https://github.com/pt-medals">pt-medalz</a>, <a href="https://github.com/pt-fashion">pt-fazhion</a>, <a href="https://github.com/cosplaytown">cozplaytown</a>
 
 <br>
 
-number 1 fan of doublezipper + jackson storm !!!
+number 1 fan of doublezipper + jackzon ztorm !!!
 
-<a href="https://github.com/ship-town">ship-town</a>, <a href="https://github.com/fans-town">fans-town</a>
+<a href="https://github.com/ship-town">zhip-town</a>, <a href="https://github.com/fans-town">fanz-town</a>
 
 
 <br>
