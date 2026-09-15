@@ -29,9 +29,13 @@ LARPDUO [@drfunkbeat](https://github.com/drfunkbeat) !!!
 
 <a href="https://github.com/pt-friendships">pt-friendzhipz</a>, <a href="https://github.com/pt-ship-nominations">pt-zhip-nominationz</a>
 
-andrew + zexual 1 + mrdoombringer of pt !!! 
+andrew + zexual 1 of pt !!! 
 
-<a href="https://github.com/style-town">ztyle-town</a>, <a href="https://github.com/character-town">character-town</a>, <a href="https://github.com/forsakentown">forzakentown</a>
+<a href="https://github.com/style-town">ztyle-town</a>, <a href="https://github.com/character-town">character-town</a>
+
+mrdoombringer of pt + 1xdoe'z biggezt fan !!!
+
+<a href="https://github.com/forsakentown">forzakentown</a>, <a href="https://github.com/forsakentown">forzakentown</a>
 
 ItzskeetXD662 of pt!!
 
