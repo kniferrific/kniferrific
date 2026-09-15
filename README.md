@@ -35,7 +35,7 @@ andrew + zexual 1 of pt !!!
 
 mrdoombringer of pt + 1xdoe'z biggezt fan !!!
 
-<a href="https://github.com/forsakentown">forzakentown</a>, <a href="https://github.com/forsakentown">forzakentown</a>
+<a href="https://github.com/forsakentown">forzakentown</a>, <a href="https://github.com/pt-of-forsaken">pt-of-forzaken</a>
 
 ItzskeetXD662 of pt!!
 
