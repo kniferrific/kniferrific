@@ -1,15 +1,4 @@
 ![](https://64.media.tumblr.com/759402a84127443ed74c39f1f92ec77f/fbfeba6138e62297-36/s1280x1920/72c17070eb1ec3dd87643de25d27a8a17dfd1502.pnj)
-
-
-<div align="center">
-
-${\textsf{\color{#DCDCBD} YES im open for a partner ahahaa DM ME PLEASE }}$
-
-<br>
-
-${\textsf{\color{#D8B4A8} ??? AM I MUTED why is nobody talkinh to meh😅😅😅😅😅😅😅 }}$
-
-
 ![](https://64.media.tumblr.com/1d4b10a46bca741e6b40c8312db2bd13/fbfeba6138e62297-68/s2048x3072/585a82c58b14f12fc1c61ce80cece5010bd1079e.pnj)
 
 
