@@ -60,7 +60,15 @@ thank u 4 all da n0minationz, yaya!!!
 
 </details>
 
-　　　　　[![](https://64.media.tumblr.com/5895a6970b9abb5ecb99ca64ece25ee1/473401731bebdd08-ae/s250x400/7d4072f3c0256112850185c70934a964b7954733.pnj)](https://ivandrew.atabook.org/) [![](https://64.media.tumblr.com/f0a2a9ab4680c7e2eebe20432da416f5/473401731bebdd08-e9/s250x400/ea0b56d008c20e1edeeb7b494d3163a042aa2cfa.pnj)](https://rentry.co/suicide_parade) [![](https://64.media.tumblr.com/44653bf9d161735bf8296401e3f9058e/473401731bebdd08-da/s250x400/a3acc87a21149b0c2c52d30b1b2ebc37d3258092.pnj)](https://rentry.co/tropfan) [![](https://64.media.tumblr.com/f6b05af64e97a4fd6cc134b5b4be7af9/473401731bebdd08-0b/s250x400/0e863ef323a9deef2076ebb2a620d5aecbc48589.pnj)](https://blehheughh.straw.page/)
+
+<div align="center">
+
+<a href="https://ivandrew.atabook.org/"><img src="https://64.media.tumblr.com/5895a6970b9abb5ecb99ca64ece25ee1/473401731bebdd08-ae/s250x400/7d4072f3c0256112850185c70934a964b7954733.pnj"></a>
+<a href="https://rentry.co/suicide_parade"><img src="https://64.media.tumblr.com/f0a2a9ab4680c7e2eebe20432da416f5/473401731bebdd08-e9/s250x400/ea0b56d008c20e1edeeb7b494d3163a042aa2cfa.pnj"></a>
+<a href="https://rentry.co/tropfan"><img src="https://64.media.tumblr.com/44653bf9d161735bf8296401e3f9058e/473401731bebdd08-da/s250x400/a3acc87a21149b0c2c52d30b1b2ebc37d3258092.pnj"></a>
+<a href="https://blehheughh.straw.page/"><img src="https://64.media.tumblr.com/f6b05af64e97a4fd6cc134b5b4be7af9/473401731bebdd08-0b/s250x400/0e863ef323a9deef2076ebb2a620d5aecbc48589.pnj"></a>
+
+</div>
 
 
 ![](https://64.media.tumblr.com/e4d5ba143789ade13ba9aaf2fed52d39/acff5e10549b6d1a-be/s540x810/62f3e95aa79785a8c1a8780ca7c56b42bdd7b553.pnj)
@@ -72,3 +80,5 @@ healing wit [@BigGay-AL](https://github.com/BigGay-AL) 🍀🍀🍀🍀🍀🍀�
 
 
 ![](https://64.media.tumblr.com/9e47c8fac4e2c1dab0ec2853eb33a755/fbfeba6138e62297-56/s1280x1920/e4476c5bd3b10621bc3161a25f1c8dbce4aaa396.pnj)
+
+</div>
