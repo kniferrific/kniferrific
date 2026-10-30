@@ -20,11 +20,11 @@ andrew + zexual 1 of pt !!!
 
 mrdoombringer of pt + 1xdoe'z biggezt fan !!!
 
-<a href="https://github.com/piddlezjet">piddlesjet</a>, <a href="https://github.com/casinotown">cazinotown</a>, <a href="https://github.com/forsakentown">forzakentown</a>, <a href="https://github.com/pt-of-forsaken">pt-of-forzaken</a>
+<a href="https://github.com/piddlezjet">piddlezjet</a>, <a href="https://github.com/casinotown">cazinotown</a>, <a href="https://github.com/forsakentown">forzakentown</a>, <a href="https://github.com/pt-of-forsaken">pt-of-forzaken</a>
 
 ItzskeetXD662 of pt!!
 
-<a href="https://github.com/pt-heavyfictkin">pt-heavyfictkin</a>, <a href="https://github.com/Ponytowns-rewards">ponytownz-rewardz</a>, <a href="https://github.com/daggerstruckmage">daggerztruckmage</a>,<a href="https://github.com/piddlesjet">piddlezjet</a>
+<a href="https://github.com/pt-heavyfictkin">pt-heavyfictkin</a>, <a href="https://github.com/Ponytowns-rewards">ponytownz-rewardz</a>, <a href="https://github.com/daggerstruckmage">daggerztruckmage</a>, <a href="https://github.com/piddlesjet">piddlezjet</a>
 
 craig tucker of pt !
 
