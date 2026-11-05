@@ -24,7 +24,7 @@ mrdoombringer of pt + 1xdoe'z biggezt fan !!!
 
 ItzskeetXD662 of pt!!
 
-<a href="https://github.com/pt-heavyfictkin">pt-heavyfictkin</a>, <a href="https://github.com/Ponytowns-rewards">ponytownz-rewardz</a>, <a href="https://github.com/daggerstruckmage">daggerztruckmage</a>, <a href="https://github.com/piddlesjet">piddlezjet</a>
+<a href="https://github.com/pt-heavyfictkin">pt-heavyfictkin</a>, <a href="https://github.com/Ponytowns-rewards">ponytownz-rewardz</a>, <a href="https://github.com/daggerstruckmage">daggerztruckmage</a>, <a href="https://github.com/piddlesjet">piddlezjet</a>, <a href="https://github.com/pt-everypony">pt-everypony</a>, <a 
 
 craig tucker of pt !
 
